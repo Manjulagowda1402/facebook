@@ -1,1 +1,2 @@
-# bvcc............
+# idiot fellow
+vidyavardhaka college 
