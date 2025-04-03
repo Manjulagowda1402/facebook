@@ -1,2 +1,2 @@
-# idiot fellow
+# idiot fellows
 vidyavardhaka college 
